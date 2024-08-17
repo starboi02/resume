@@ -1,1 +1,2 @@
-## Resume - Varun Bhardwaj
+## Resume
+Resume - Varun Bhardwaj
